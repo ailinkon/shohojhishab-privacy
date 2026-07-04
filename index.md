@@ -1,4 +1,4 @@
-# Privacy Policy — Shohoj Hishab (সহজ হিসাব) <img width="1024" height="1024" alt="Sahaj Hishab (2)" src="https://github.com/user-attachments/assets/9fecfd7f-4792-479d-abf8-5a1c92bdc83a" />
+# Privacy Policy — Shohoj Hishab (সহজ হিসাব) 
 
 
 **Effective date:** 5 July 2026
